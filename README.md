@@ -10,4 +10,4 @@ Disease
 5.Cassava rot
 6.Healthy
 
-contact for mobile application: +233245496063
+Whatsapp me: +233245496063
